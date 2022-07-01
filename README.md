@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @GlitterRainbows
+- 👀 I’m interested in developing my ability in various coding languages to the eventual goal of developing personal projects.
+- 🌱 I’m currently learning the basics before I start my CS degree.
+- 💞️ I’m looking to collaborate on anything, all experience is good!
+- 📫 How to reach me, email me @ reynoldsjeffrey414@gmail.com
